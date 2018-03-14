@@ -1,0 +1,2 @@
+# catatan
+Hanya catatan biasa
